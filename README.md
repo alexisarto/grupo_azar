@@ -13,3 +13,10 @@ Luego podrás recorrer distintos artículos que podes agregar a tu carrito, como
 Y luego elegir de un listado de instituciones, organizaciones sociales y comedores al que quieras ayudar.
 
 Pasarás por último a realizar el pago.
+
+Los productos seran del listado de precios cuidados.
+
+  **Público objetivo**
+  Mayores de 18 años con acceso a internet.
+  
+  
