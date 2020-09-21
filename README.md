@@ -19,4 +19,11 @@ Los productos seran del listado de precios cuidados.
   **Público objetivo**
   Mayores de 18 años con acceso a internet.
   
-  
+
+Andersonmarket.com         - Diseño de pagina
+gurumarket.com.ar
+https://www.cptoficina.com.ar/
+https://diaonline.supermercadosdia.com.ar/ 
+
+https://fundacionsi.org.ar/      - Desempeña una tarea similar
+https://www.caritas.org.ar/     - Referencia del sector 
