@@ -20,8 +20,8 @@ Los productos seran del listado de precios cuidados.
   Mayores de 18 años con acceso a internet.
   
 
-Andersonmarket.com         - Diseño de pagina
-gurumarket.com.ar
+Andersonmarket.com - Diseño de pagina
+gurumarket.com.ar -Diseño
 https://www.cptoficina.com.ar/
 https://diaonline.supermercadosdia.com.ar/ 
 https://www.bancodealimentos.org.ar/ -Mejor referencia
